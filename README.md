@@ -1,15 +1,18 @@
 # LX9702
 
-I'm just a young adult who makes weird web apps, trains, and shitpost.
-I'm not a professional, but I'm trying to learn.
+*He/him*
+
+I'm just a young adult who makes weird web apps, trains, and shitpost.<br>
+I'm not a professional in anything at all, but I'm trying to learn.
 
 ## Q: What do you Like
-JR 209 series<br>
-Any Fire Emblem game before FE13
-Making trains
-Making weird web apps
-Shitposting
-Expressing my weird opinions
-Tetris
+[JR 209 series](https://en.wikipedia.org/wiki/209_series)<br>
+[Roy](https://fireemblemwiki.org/wiki/Roy)<br>
+Making trains<br>
+Making weird web apps<br>
+Shitposting<br>
+Expressing my weird opinions<br>
+Tetris<br>
 
 #TOTK #FEH #RoysOurBoy
+![houkoumaku_快速費雷 (1)](https://github.com/user-attachments/assets/a8c477ad-2132-4ad9-8755-8277f79aed02)
