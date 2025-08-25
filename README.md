@@ -15,4 +15,7 @@ Expressing my weird opinions<br>
 Tetris<br>
 
 #TOTK #FEH #RoysOurBoy
+
+# ***F**IRE **E**MBLEM*
+
 ![houkoumaku_快速費雷 (1)](https://github.com/user-attachments/assets/a8c477ad-2132-4ad9-8755-8277f79aed02)
