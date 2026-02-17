@@ -13,6 +13,7 @@ Making weird web apps<br>
 Shitposting<br>
 Expressing my weird opinions<br>
 Tetris<br>
+[E92](https://www.bmw-m.com/en/topics/magazine-article-pool/bmw-m3-e92-e90-and-e93.html)<br>
 
 ## Q: Best TOC?
 West Midlands Trains 🗣️🗣️🗣️
