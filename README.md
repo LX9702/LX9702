@@ -5,9 +5,18 @@
 I'm just a young adult who makes weird web apps, trains, and shitpost.<br>
 I'm not a professional in anything at all, but I'm trying to learn.
 
+AVW76 LX9702  
+S-86K
+YV3S1H81541050928           
+
+AVBWU540 UV6921
+S-81C
+YV3S4P922HA182897
+
 ## Q: What do you Like
 [JR 209 series](https://en.wikipedia.org/wiki/209_series)<br>
 [Roy](https://fireemblemwiki.org/wiki/Roy)<br>
+[Eliwood](https://fireemblemwiki.org/wiki/Eliwood)<br>
 Making trains<br>
 Making weird web apps<br>
 Shitposting<br>
