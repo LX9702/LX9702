@@ -6,12 +6,24 @@ I'm just a young adult who makes weird web apps, trains, and shitpost.<br>
 I'm not a professional in anything at all, but I'm trying to learn.
 
 AVW76 LX9702  
-S-86K
+S-86K  
 YV3S1H81541050928           
 
-AVBWU540 UV6921
-S-81C
-YV3S4P922HA182897
+AVBWU540 UV6921  
+S-81C  
+YV3S4P922HA182897  
+
+AVBWU621 UY6976  
+S-86K  
+YV3S4P922HA185072  
+
+E6X137 XA406  
+S-277X  
+SFD8ACNR8LMTL6958  
+
+ATENU921 TY4934  
+S-48X  
+SFD46FNR6FMTL4840
 
 ## Q: What do you Like
 [JR 209 series](https://en.wikipedia.org/wiki/209_series)<br>
